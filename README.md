@@ -102,7 +102,7 @@ This web site when translated in Welsh says that Ashley Freitas used her shadow 
 
 
 
-
+Wiccan online school of the cross and sacred circle
 
 Brandie Raquel Jackson 
 1st registered wicca witch with the USA state of California probation dept San Bonito County Hollister california
