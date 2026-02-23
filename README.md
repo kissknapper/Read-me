@@ -1,3 +1,109 @@
+             WICCAN HOLY BIBLE
+                     1972-2026
+
+Book of Marriage  
+Book of Death
+Book of Shadows   
+Book of Life
+Book of Childhood
+Book of Family
+Book of San Jose california
+Book of Hollister California
+Book of Idaho
+Book of Minnesota 
+Book of Pennsylvania 
+Book of New York
+Book of 2 ND Revelations
+
+
+Book of king James holy Bible
+Genesis 
+New testament
+Matthew
+Mark
+Luke
+John 1
+John 2
+John 3
+Ephesians 
+Galatians 
+Phillipines 
+1 Timothy
+2 Timothy
+James 
+Jude
+Revelations
+
+Wiccan Holy Bible 1972-2026
+
+
+About the Author:
+
+Aka: brandie Raquel Tibbitts, Freitas, Jackson, Wooten, Unknown.
+Gender: female
+Single birth.
+Born in Watsonville California. D.o.b. 09/14/1972.
+Community hospital  of Watsonville California
+Mother: Sharon Kay Tibbitts married Timothy Warren Freitas
+Grandmother: Mary Tynia King of watsonville born in Oklahoma
+Father : (unknown)
+Brandie Raquel Freitas married William Edward Micheal Jackson born in San Jose California 
+Reno Nevada Chapel of the Bells 1989.
+Born to William Edward Jr. And wife branding Jackson at kaiser Santa Theresa hospital sent to Santa Clara kaiser hospital released from Santa Clara kaiser hospital Santa Clara County San Jose CA guy weighd 3pounds 4oz. gender : male. single birth. Name: first: Guy. middle:Warren. Last: Jackson.
+D.o.b 09/18/1989.
+
+Second child : 
+Born in San Jose Kaiser Santa Thersa hospital. D.o.b 03/11/1993.
+Name first : Edward. Middle: Patrick. Last: Jackson. Weighed : 8 pounds and 4 Oz. Gender: male. Single birth.
+
+
+                      Wiccan Holy Bible
+                           1972-2026
+
+
+          Book of San Jose california
+
+
+   Http://www.freitasranch.net
+This web site when translated in Welsh says that Ashley Freitas used her shadow to get Brandie Freitas to start a fire @ 18968 past the pond pinnacles hwy zip 95045.
+   Also on Facebook search names: brandie tidbits (head), branding wooten,  branding Jackson, allloveislostinsanjosecalifornia , 
+
+
+                   Book of Hollister
+
+
+
+
+
+                     Book of Idaho
+
+
+
+
+
+
+
+                    Book of Minnesota 
+
+
+
+
+
+
+
+
+
+
+
+                 
+
+
+
+
+
+
+
+
 Brandie Raquel Jackson 
 1st registered wicca witch with the USA state of California probation dept San Bonito County Hollister california
 Lab
