@@ -1,4 +1,5 @@
-# Read-me
+Brandie Raquel Jackson 
+1st registered wicca witch with the USA state of California probation dept San Bonito County Hollister california
 Lab
 That’s such an interesting idea 🌙✨ 
 1️⃣ Clarify Your Vision
